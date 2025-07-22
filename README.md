@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Max3094
-- 👀 I’m interested in anime, music and games and i would love to make mod for games
-- 🌱 I’m currently learning how to code
+- 👀 I’m interested in anime, music,games and manga/manhwa (I wouldn't mind some good recommendations) and i would love to make modd for games or just help and learn coding (currently learning how to code tho
 - 📫 How to reach me I have a discord with the user max3094_josuke
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: I know nothing about coding and I'm on mobile so everything is 10x harder :D
